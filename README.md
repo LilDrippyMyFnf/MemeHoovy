@@ -1,6 +1,4 @@
--im an idiot :]
-
--also I like haxe
+[![Anurag's GitHub stats](https://github-readme-stats.vercel.app/api?username=MemeHoovy)](https://github.com/anuraghazra/github-readme-stats)
 
 
 <!---
