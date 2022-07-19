@@ -1,5 +1,6 @@
 ![Anurag's GitHub stats](https://github-readme-stats.vercel.app/api?username=MemeHoovy&show_icons=true&theme=radical&count_private=true)
 
+Someone who probably has way more free time then he should.
 
 My (somewhat inactive) Youtube Channel: https://www.youtube.com/channel/UCMh09vutNZAA6y1ogPqq_9Q
 
