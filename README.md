@@ -4,6 +4,14 @@ Someone who probably has way more free time then he should.
 
 My (somewhat inactive) Youtube Channel: https://www.youtube.com/channel/UCMh09vutNZAA6y1ogPqq_9Q
 
+My discord: MemeHoovy#8234 
+
+Note that if I do not respond either I:
+Didn't see or notice your message.
+Am asleep.
+Am away.
+And many other reasons I can't think of off of the top of my head.
+
 
 <!---
 MemeHoovy/MemeHoovy is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
