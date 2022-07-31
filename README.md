@@ -7,7 +7,7 @@ My (somewhat inactive) Youtube Channel: https://www.youtube.com/channel/UCMh09vu
 My discord: MemeHoovy#8234 
 
 Note that if I do not respond either I:
-Didn't see or notice your message.
+Didn't see or notice your message. (Likely to happen, I have my notifications on silent.)
 Am asleep.
 Am away.
 And many other reasons I can't think of off of the top of my head.
