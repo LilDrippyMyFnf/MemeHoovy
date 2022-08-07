@@ -4,7 +4,9 @@ Someone who probably has way more free time then he should.
 
 My (somewhat inactive) Youtube Channel: https://www.youtube.com/channel/UCMh09vutNZAA6y1ogPqq_9Q
 
-My discord: MemeHoovy#8234 
+My discord: MemeHoovy#8234
+
+My Linktree: https://linktr.ee/memehoovy
 
 Note that if I do not respond either I:
 Didn't see or notice your message. (Likely to happen, I kinda have my notifications on silent.)
