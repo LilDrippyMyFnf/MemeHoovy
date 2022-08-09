@@ -2,6 +2,8 @@
 
 Someone who probably has way more free time then he should.
 
+![1c2cf55494b7d865b7860dbf18f4b049ce98e75013bbb0ab6b5af662ab2ef5da_1](https://user-images.githubusercontent.com/97995998/183731547-9340824f-8e5f-4e96-8d4e-7206c9acce04.jpg)
+
 My (somewhat inactive) Youtube Channel: https://www.youtube.com/channel/UCMh09vutNZAA6y1ogPqq_9Q
 
 My discord: MemeHoovy#8234
