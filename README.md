@@ -23,7 +23,6 @@ And many other reasons I can't think of off of the top of my head.
 ![roblox-jtoh](https://user-images.githubusercontent.com/97995998/184887524-87a15734-2543-4700-87d9-e3133a8764ad.gif)
 ![markiplier](https://user-images.githubusercontent.com/97995998/184887543-c1affb7b-25cc-4adc-8cc4-e3f0f7b0adb6.gif)
 ![toby-fox (1)](https://user-images.githubusercontent.com/97995998/185806316-553b254b-73e3-41fa-9220-ea79eb6ed449.gif)
-![skeleton-spinning](https://user-images.githubusercontent.com/97995998/187012967-0be05694-eabd-465c-ba2c-031fccf24cf2.gif)
 
 
 <!---
