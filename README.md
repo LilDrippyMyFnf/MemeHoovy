@@ -9,6 +9,7 @@ Hello, I do FNF content and other crap.
 ![helltaker-modeus (4)](https://user-images.githubusercontent.com/97995998/184876571-97b808ce-20d6-45d4-b2ac-92d53e8ef1d1.gif)
 
 Youtube Channel: https://www.youtube.com/channel/UCMh09vutNZAA6y1ogPqq_9Q
+(Please go sub or else you go to hell, before you die. Please.)
 
 Discord: MemeHoovy#8234
 
