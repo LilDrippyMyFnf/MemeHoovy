@@ -11,6 +11,12 @@ Hello, I do FNF content and other crap.
 Youtube Channel: https://www.youtube.com/channel/UCMh09vutNZAA6y1ogPqq_9Q
 (Please go sub or else you go to hell, before you die. Please.)
 
+cool people:
+@LEVIXDDLMAO
+
+people who blocked me :( btw don't go harassing them, please:
+@L1ttleO
+
 Discord: MemeHoovy#8234
 
 Linktree: https://linktr.ee/memehoovy
