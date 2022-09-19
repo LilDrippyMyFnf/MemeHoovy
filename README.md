@@ -28,7 +28,7 @@ Discord: MemeHoovy#8234
 Linktree: https://linktr.ee/memehoovy
 
 Note that if I do not respond either I:
-Didn't see or notice your message. (Likely to happen, I kinda have my notifications on silent.)
+Didn't see or notice your message.
 Am asleep.
 Am away.
 And many other reasons I can't think of off of the top of my head.
