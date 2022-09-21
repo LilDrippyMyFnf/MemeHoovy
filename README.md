@@ -39,10 +39,6 @@ BTW Don't try and respond to me via my email (that I use for github), I rarely c
 ![markiplier](https://user-images.githubusercontent.com/97995998/184887543-c1affb7b-25cc-4adc-8cc4-e3f0f7b0adb6.gif)
 ![toby-fox (1)](https://user-images.githubusercontent.com/97995998/185806316-553b254b-73e3-41fa-9220-ea79eb6ed449.gif)
 ![wtjvd86apto61](https://user-images.githubusercontent.com/97995998/190933827-883837cb-5c67-4670-8d40-f3ffb5a93dd3.png)
+![TBHStaticIdle](https://user-images.githubusercontent.com/97995998/191402204-01f3e2df-d82e-44ff-9380-ac2e821ac79e.png)
 
 
-
-<!---
-MemeHoovy/MemeHoovy is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
