@@ -42,5 +42,3 @@ And don't you **dare** make a garbage PR on my repos or anyone elses, otherwise 
 ![toby-fox (1)](https://user-images.githubusercontent.com/97995998/185806316-553b254b-73e3-41fa-9220-ea79eb6ed449.gif)
 ![wtjvd86apto61](https://user-images.githubusercontent.com/97995998/190933827-883837cb-5c67-4670-8d40-f3ffb5a93dd3.png)
 ![TBHStaticIdle](https://user-images.githubusercontent.com/97995998/191402204-01f3e2df-d82e-44ff-9380-ac2e821ac79e.png)
-
-
