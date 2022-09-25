@@ -23,6 +23,10 @@ people who blocked me :( btw don't go harassing them, please:
 
 @L1ttleO
 
+people I guinely hate:
+
+@NimuDevUwU
+
 Discord: MemeHoovy#8234
 
 Linktree: https://linktr.ee/memehoovy
