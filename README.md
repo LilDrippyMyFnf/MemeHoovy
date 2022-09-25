@@ -2,9 +2,9 @@
 
 [![Top Langs](https://github-readme-stats.vercel.app/api/top-langs/?username=MemeHoovy)](https://github.com/anuraghazra/github-readme-stats)
 
-Hello, I do FNF content and other crap.
+Hello, I do FNF content and other crap, and a fan of NomNomNami. :)
 
-And a fan of NomNomNami. :)
+I also will follow back if you follow me. (Inlcuding other socials).
 
 ![1c2cf55494b7d865b7860dbf18f4b049ce98e75013bbb0ab6b5af662ab2ef5da_1](https://user-images.githubusercontent.com/97995998/183731547-9340824f-8e5f-4e96-8d4e-7206c9acce04.jpg)
 
@@ -33,7 +33,7 @@ Am asleep.
 Am away.
 And many other reasons I can't think of off of the top of my head.
 
-BTW Don't try and respond to me via my email (that I use for github), I rarely check that.
+BTW Don't try and respond to me via my email (that I use for github, if you somehow get that), I rarely check that.
 
 And don't you **dare** make a garbage PR on my repos or anyone elses, otherwise I will block you, and I will peform a manhunt on you, IRL.
 
