@@ -15,19 +15,19 @@ Youtube Channel: https://www.youtube.com/channel/UCMh09vutNZAA6y1ogPqq_9Q
 
 cool people:
 
-@LEVIXDDLMAO
+[LEVIXDDLMAO](https://github.com/LEVIXDDLMAO)
 
-@Starmapo
+[Starmapo](https://github.com/Starmapo)
 
-@MasterEric
+[MasterEric](https://github.com/MasterEric)
 
 people who blocked me :( btw don't go harassing them, please:
 
-@L1ttleO
+[L1ttleO](https://github.com/L1ttleO)
 
 people I guinely hate:
 
-@NimuDevUwU
+[NimuDevUwU](https://github.com/NimuDevUwU)
 
 Discord: MemeHoovy#8234
 
