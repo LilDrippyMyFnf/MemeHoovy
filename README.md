@@ -29,6 +29,8 @@ people I guinely hate:
 
 [NimuDevUwU](https://github.com/NimuDevUwU)
 
+[Your Local Coder (90)](https://github.com/bambitheone82112)
+
 Discord: MemeHoovy#8234
 
 Linktree: https://linktr.ee/memehoovy
