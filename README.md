@@ -31,6 +31,8 @@ people I guinely hate:
 
 [Your Local Coder (90)](https://github.com/bambitheone82112)
 
+[OminousNebula](https://github.com/Progamer1251718)
+
 Discord: MemeHoovy#8234
 
 Linktree: https://linktr.ee/memehoovy
