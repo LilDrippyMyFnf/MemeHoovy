@@ -25,6 +25,8 @@ people who blocked me :( btw don't go harassing them, please:
 
 [L1ttleO](https://github.com/L1ttleO)
 
+[Its-me-a-guy](https://github.com/Its-me-a-guy)
+
 people I guinely hate:
 
 [NimuDevUwU](https://github.com/NimuDevUwU)
