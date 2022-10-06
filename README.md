@@ -27,8 +27,6 @@ people who blocked me:
 
 [L1ttleO](https://github.com/L1ttleO)
 
-[Its-me-a-guy](https://github.com/Its-me-a-guy)
-
 people I guinely hate:
 
 [NimuDevUwU](https://github.com/NimuDevUwU)
@@ -36,6 +34,8 @@ people I guinely hate:
 [Your Local Coder (90)](https://github.com/bambitheone82112)
 
 [OminousNebula](https://github.com/Progamer1251718)
+
+[Its-me-a-guy](https://github.com/Its-me-a-guy)
 
 Discord: MemeHoovy#8234
 
