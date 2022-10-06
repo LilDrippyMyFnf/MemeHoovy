@@ -27,7 +27,7 @@ people who blocked me:
 
 [L1ttleO](https://github.com/L1ttleO)
 
-people I guinely hate:
+people I genuinely hate:
 
 [NimuDevUwU](https://github.com/NimuDevUwU)
 
