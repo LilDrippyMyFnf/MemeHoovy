@@ -23,7 +23,7 @@ cool people:
 
 [MasterEric](https://github.com/MasterEric)
 
-people who blocked me :( btw don't go harassing them, please:
+people who blocked me:
 
 [L1ttleO](https://github.com/L1ttleO)
 
