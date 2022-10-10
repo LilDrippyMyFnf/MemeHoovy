@@ -37,6 +37,8 @@ people I genuinely hate:
 
 [Its-me-a-guy](https://github.com/Its-me-a-guy)
 
+[TheKillerA1](https://github.com/TheKillerA1)
+
 Discord: MemeHoovy#8234
 
 Linktree: https://linktr.ee/memehoovy
