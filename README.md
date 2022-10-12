@@ -51,7 +51,7 @@ And many other reasons I can't think of off of the top of my head.
 
 BTW Don't try and respond to me via my email (that I use for github, if you somehow get that), I rarely check that.
 
-And don't you **dare** make a garbage PR on my repos or anyone elses, otherwise I will block you, and I will peform a manhunt on you, IRL.
+And don't you **dare** make a garbage PR or troll on my repos or anyone elses, otherwise I will block you, and I will peform a manhunt on you, IRL.
 
 ![roblox-jtoh](https://user-images.githubusercontent.com/97995998/184887524-87a15734-2543-4700-87d9-e3133a8764ad.gif)
 ![markiplier](https://user-images.githubusercontent.com/97995998/184887543-c1affb7b-25cc-4adc-8cc4-e3f0f7b0adb6.gif)
