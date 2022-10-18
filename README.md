@@ -4,7 +4,7 @@
 
 Hello, I do FNF content and other crap, and a fan of NomNomNami. :)
 
-I also will follow back if you follow me. (Inlcuding other socials).
+I also will follow back if you follow me. (Inlcuding other socials, & if I do notice).
 
 And also, you block me, I block you.
 
