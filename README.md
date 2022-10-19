@@ -8,6 +8,8 @@ I also will follow back if you follow me. (Inlcuding other socials, & if I do no
 
 And also, you block me, I block you.
 
+I also will fork random crap, don't judge me.
+
 ![1c2cf55494b7d865b7860dbf18f4b049ce98e75013bbb0ab6b5af662ab2ef5da_1](https://user-images.githubusercontent.com/97995998/183731547-9340824f-8e5f-4e96-8d4e-7206c9acce04.jpg)
 
 ![helltaker-modeus (4)](https://user-images.githubusercontent.com/97995998/184876571-97b808ce-20d6-45d4-b2ac-92d53e8ef1d1.gif)
