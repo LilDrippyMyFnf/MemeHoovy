@@ -41,6 +41,8 @@ people I genuinely hate:
 
 [TheKillerA1](https://github.com/TheKillerA1)
 
+[CopyDogOFC](https://github.com/CopyDogOFC)
+
 Discord: MemeHoovy#8234
 
 Linktree: https://linktr.ee/memehoovy
