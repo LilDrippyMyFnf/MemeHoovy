@@ -37,6 +37,12 @@ cool people:
 
 [Yoshicrafter29](https://github.com/yoshicrafter29)
 
+[Hammler](https://github.com/archlyneko)
+
+[ToastedNoodles](https://github.com/toastednoodle)
+
+[Axmed](https://github.com/Axmed119)
+
 people I genuinely hate:
 
 [NimuDevUwU](https://github.com/NimuDevUwU)
