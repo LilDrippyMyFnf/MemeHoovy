@@ -29,6 +29,14 @@ cool people:
 
 [Mystman12](https://github.com/micah-mcgonigal)
 
+[EyeDaleHim](https://github.com/eyedalehim)
+
+[Raltyro](https://github.com/raltyro)
+
+[Stilic](https://github.com/stilic)
+
+[Yoshicrafter29](https://github.com/yoshicrafter29)
+
 people I genuinely hate:
 
 [NimuDevUwU](https://github.com/NimuDevUwU)
