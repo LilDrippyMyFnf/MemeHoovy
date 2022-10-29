@@ -25,6 +25,10 @@ cool people:
 
 [MasterEric](https://github.com/MasterEric)
 
+[BeastlyGhost](https://github.com/BeastlyGhost)
+
+[Mystman12](https://github.com/micah-mcgonigal)
+
 people who blocked me:
 
 [L1ttleO](https://github.com/L1ttleO)
@@ -42,6 +46,8 @@ people I genuinely hate:
 [TheKillerA1](https://github.com/TheKillerA1)
 
 [CopyDogOFC](https://github.com/CopyDogOFC)
+
+[tailsicweneedtocook](https://github.com/tailsicweneedtocook)
 
 Discord: MemeHoovy#8234
 
