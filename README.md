@@ -29,10 +29,6 @@ cool people:
 
 [Mystman12](https://github.com/micah-mcgonigal)
 
-people who blocked me:
-
-[L1ttleO](https://github.com/L1ttleO)
-
 people I genuinely hate:
 
 [NimuDevUwU](https://github.com/NimuDevUwU)
