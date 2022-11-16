@@ -10,6 +10,8 @@ And also, you block me, I block you.
 
 I also will fork random crap, don't judge me.
 
+Sorry if I do tend to be annoying btw, I have anger issues.
+
 ![1c2cf55494b7d865b7860dbf18f4b049ce98e75013bbb0ab6b5af662ab2ef5da_1](https://user-images.githubusercontent.com/97995998/183731547-9340824f-8e5f-4e96-8d4e-7206c9acce04.jpg)
 
 ![lwt-lonely-wolf-treat](https://user-images.githubusercontent.com/97995998/200653146-4e0fe8fb-00e4-4b6e-ad51-6c90d03f0ae3.gif)
@@ -40,9 +42,11 @@ cool people:
 
 [Hammler](https://github.com/archlyneko)
 
-[ToastedNoodles](https://github.com/toastednoodle)
+[CherrySprite](https://github.com/toastednoodle)
 
 [Axmed](https://github.com/Axmed119)
+
+[GamerPablito](https://github.com/GamerPablito)
 
 people I genuinely hate:
 
