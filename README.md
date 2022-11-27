@@ -48,6 +48,8 @@ cool people:
 
 [GamerPablito](https://github.com/GamerPablito)
 
+[UmbratheUmbreon](https://github.com/UmbratheUmbreon)
+
 people I genuinely hate:
 
 [NimuDevUwU](https://github.com/NimuDevUwU)
@@ -82,6 +84,8 @@ Any NFT people on here can **fuck off**, same with any sex offenders.
 
 Furries are OK 👍
 uwu
+
+I also love toy poodles❤️
 
 ![roblox-jtoh](https://user-images.githubusercontent.com/97995998/184887524-87a15734-2543-4700-87d9-e3133a8764ad.gif)
 ![markiplier](https://user-images.githubusercontent.com/97995998/184887543-c1affb7b-25cc-4adc-8cc4-e3f0f7b0adb6.gif)
