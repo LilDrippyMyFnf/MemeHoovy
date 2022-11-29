@@ -52,6 +52,8 @@ cool people:
 
 [UmbratheUmbreon](https://github.com/UmbratheUmbreon)
 
+[Aaron Rasmus](https://github.com/voxovistired)
+
 people I genuinely hate:
 
 [NimuDevUwU](https://github.com/NimuDevUwU)
@@ -67,8 +69,6 @@ people I genuinely hate:
 [CopyDogOFC](https://github.com/CopyDogOFC)
 
 [tailsicweneedtocook](https://github.com/tailsicweneedtocook)
-
-[Aaron Rasmus](https://github.com/voxovistired)
 
 Discord: MemeHoovy#8234
 
