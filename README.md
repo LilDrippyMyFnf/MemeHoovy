@@ -80,6 +80,8 @@ Am asleep.
 Am away.
 And many other reasons I can't think of off of the top of my head.
 
+If you want help from me with FNF mods, *contact me on discord*.
+
 BTW Don't try and respond to me via my email (that I use for github, if you somehow get that), I rarely check that.
 
 And don't you **dare** make a garbage PR or troll on my repos or anyone elses, otherwise I will block you, and I will peform a manhunt on you, IRL.
