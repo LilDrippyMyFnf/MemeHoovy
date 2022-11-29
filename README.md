@@ -9,6 +9,7 @@ I also will follow back if you follow me. (Inlcuding other socials, & if I do no
 And also, you block me, I block you.
 
 I also will fork random crap, don't judge me. (I also mostly fork them after I star them, I have a problem)
+It's also because I'm a data hoarder.
 
 Sorry if I do tend to be annoying btw, I have anger issues. (And also need therapy)
 
