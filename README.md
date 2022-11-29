@@ -68,6 +68,8 @@ people I genuinely hate:
 
 [tailsicweneedtocook](https://github.com/tailsicweneedtocook)
 
+[Aaron Rasmus](https://github.com/voxovistired)
+
 Discord: MemeHoovy#8234
 
 Linktree: https://linktr.ee/memehoovy
