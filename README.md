@@ -55,6 +55,8 @@ cool people:
 
 [Aaron Rasmus](https://github.com/voxovistired)
 
+[GodzilRBLX](https://github.com/GodzilRBLX)
+
 people I genuinely hate:
 
 [NimuDevUwU](https://github.com/NimuDevUwU)
