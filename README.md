@@ -89,7 +89,7 @@ BTW Don't try and respond to me via my email (that I use for github, if you some
 
 And don't you **dare** make a garbage PR or troll on my repos or anyone elses, otherwise I will block you, and I will peform a manhunt on you, IRL.
 
-Any NFT people on here can **fuck off**, same with any sex offenders. **YOU WILL BE BLOCKED ON SIGHT.*
+Any NFT people on here can **fuck off**, same with any sex offenders. **YOU WILL BE BLOCKED ON SIGHT.**
 
 Furries are OK 👍
 uwu
