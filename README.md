@@ -4,7 +4,7 @@
 
 Hello, I do FNF content and other crap, and a fan of NomNomNami. :)
 
-I also will follow back if you follow me. (Inlcuding other socials, & if I do notice).
+I will follow back if you follow me. (Inlcuding on other socials, & if I do notice).
 
 I also will fork random crap, don't judge me. (I also mostly fork them after I star them, I have a problem)
 It's also because I'm a data hoarder.
