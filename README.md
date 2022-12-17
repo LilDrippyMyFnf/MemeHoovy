@@ -65,6 +65,40 @@ cool people:
 
 [Wither362](https://github.com/Wither362)
 
+[PopcornColonell](https://github.com/PopcornColonell)
+
+[Yoshubs](https://github.com/Yoshubs)
+
+[Sector03](https://github.com/Sector03)
+
+[JoseXD2](https://github.com/JoseXD2)
+
+[MAJigsaw77](https://github.com/MAJigsaw77)
+
+[JonnycatMeow](https://github.com/JonnycatMeow)
+
+[JuniorNovoa1](https://github.com/JuniorNovoa1)
+
+[BushTrain460615](https://github.com/BushTrain460615)
+
+[lunarcleint](https://github.com/lunarcleint)
+
+[fnfporterhi](https://github.com/fnfporterhi)
+
+[KamexVGM](https://github.com/KamexVGM)
+
+[DuskieWhy](https://github.com/DuskieWhy)
+
+[superpowers04](https://github.com/superpowers04)
+
+[GWebDev](https://github.com/GrowtopiaFli)
+
+[StefanBETA2008](https://github.com/StefanBETA2008)
+
+[SanicBTW](https://github.com/SanicBTW)
+
+[Dominicthecodingenuis](https://github.com/Dominicthecodingenuis)
+
 people I genuinely hate:
 
 [NimuDevUwU](https://github.com/NimuDevUwU)
