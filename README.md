@@ -101,6 +101,8 @@ cool people:
 
 [Leather128](https://github.com/Leather128)
 
+[504Brandon](https://github.com/504brandon)
+
 people I genuinely hate:
 
 [NimuDevUwU](https://github.com/NimuDevUwU)
