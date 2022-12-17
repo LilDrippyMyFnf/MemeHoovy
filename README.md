@@ -61,6 +61,10 @@ cool people:
 
 [GodzilRBLX](https://github.com/GodzilRBLX)
 
+[Joalor64GH](https://github.com/Joalor64GH)
+
+[Wither362](https://github.com/Wither362)
+
 people I genuinely hate:
 
 [NimuDevUwU](https://github.com/NimuDevUwU)
