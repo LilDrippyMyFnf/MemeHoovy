@@ -27,6 +27,31 @@ best friend <3 :
 
 [LEVIXDDLMAO](https://github.com/LEVIXDDLMAO)
 
+Discord: MemeHoovy#8234
+
+Linktree: https://linktr.ee/memehoovy
+
+Note that if I do not respond either I:
+Didn't see or notice your message.
+Am asleep.
+Am away.
+And many other reasons I can't think of off of the top of my head.
+
+If you want help from me with FNF mods, *contact me on discord*.
+
+BTW Don't try and respond to me via my email (that I use for github, if you somehow get that), I rarely check that.
+
+And don't you **dare** make a garbage PR or troll on my repos or anyone elses, otherwise I will block you, and I will peform a manhunt on you, IRL.
+
+Any NFT people on here can **fuck off**, same with any sex offenders. **YOU WILL BE BLOCKED ON SIGHT.**
+
+Furries are OK 👍
+uwu
+
+I also love toy poodles❤️
+
+-------------------------------------------------------------------------------------------------------------------------------------------------------
+
 cool people:
 
 [LEVIXDDLMAO](https://github.com/LEVIXDDLMAO)
@@ -119,28 +144,7 @@ people I genuinely hate:
 
 [tailsicweneedtocook](https://github.com/tailsicweneedtocook)
 
-Discord: MemeHoovy#8234
-
-Linktree: https://linktr.ee/memehoovy
-
-Note that if I do not respond either I:
-Didn't see or notice your message.
-Am asleep.
-Am away.
-And many other reasons I can't think of off of the top of my head.
-
-If you want help from me with FNF mods, *contact me on discord*.
-
-BTW Don't try and respond to me via my email (that I use for github, if you somehow get that), I rarely check that.
-
-And don't you **dare** make a garbage PR or troll on my repos or anyone elses, otherwise I will block you, and I will peform a manhunt on you, IRL.
-
-Any NFT people on here can **fuck off**, same with any sex offenders. **YOU WILL BE BLOCKED ON SIGHT.**
-
-Furries are OK 👍
-uwu
-
-I also love toy poodles❤️
+------------------------------------------------------------------------------------------------------------------------
 
 ![roblox-jtoh](https://user-images.githubusercontent.com/97995998/184887524-87a15734-2543-4700-87d9-e3133a8764ad.gif)
 ![markiplier](https://user-images.githubusercontent.com/97995998/184887543-c1affb7b-25cc-4adc-8cc4-e3f0f7b0adb6.gif)
