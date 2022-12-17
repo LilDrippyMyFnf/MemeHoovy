@@ -99,6 +99,8 @@ cool people:
 
 [Dominicthecodingenuis](https://github.com/Dominicthecodingenuis)
 
+[Leather128](https://github.com/Leather128)
+
 people I genuinely hate:
 
 [NimuDevUwU](https://github.com/NimuDevUwU)
