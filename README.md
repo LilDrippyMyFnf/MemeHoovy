@@ -126,6 +126,8 @@ cool people:
 
 [504Brandon](https://github.com/504brandon)
 
+[NeeEoo](https://github.com/NeeEoo)
+
 people I genuinely hate:
 
 [NimuDevUwU](https://github.com/NimuDevUwU)
